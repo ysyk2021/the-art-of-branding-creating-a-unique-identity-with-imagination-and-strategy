@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Basics of Branding: Identifying the Target Audience and Defining Brand Values
-==========================================================================================================
+# Identifying the Target Audience and Defining Brand Values
 
 Successful branding starts with understanding your target audience and defining your brand values. In this chapter, we will discuss why it is important to identify your target audience and define your brand values.
 
