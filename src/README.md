@@ -6,5 +6,4 @@ From identifying your brand values and messaging to developing a visual identity
 
 Whether you're a small business owner, entrepreneur, or marketing professional, "The Art of Branding: Creating a Unique Identity with Imagination and Strategy" is an essential resource for anyone looking to establish a strong and memorable brand presence in the market.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
