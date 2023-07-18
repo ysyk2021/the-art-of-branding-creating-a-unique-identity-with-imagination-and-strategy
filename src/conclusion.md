@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 10: Conclusion
-======================
-
 Recap of the Benefits of Effective Branding
 -------------------------------------------
 
