@@ -37,5 +37,3 @@ Conclusion
 ----------
 
 Identifying the target audience and defining brand values are crucial steps in building a strong and resonant brand. By understanding who your target audience is and what they value, you can create a brand that deeply connects with them. Defining clear brand values guides your decision-making and helps differentiate your brand in the marketplace.
-
-*Note: This chapter is adapted from the book "The Art of Branding: Creating a Unique Identity With Imagination and Strategy" by \[Author's Name\].*

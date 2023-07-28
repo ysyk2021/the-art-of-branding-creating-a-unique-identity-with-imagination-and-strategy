@@ -74,5 +74,3 @@ Conclusion
 ----------
 
 Consistency in messaging and visuals is vital for establishing a strong brand identity. By implementing strategies such as establishing brand guidelines, defining a brand voice, maintaining a consistent visual identity, and conducting consistency checkpoints, you can ensure that your brand communicates effectively and resonates with your audience at every touchpoint.
-
-*Note: This chapter is adapted from the book "The Art of Branding: Creating a Unique Identity With Imagination and Strategy" by \[Author's Name\].*
