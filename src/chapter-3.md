@@ -1,5 +1,3 @@
-Chapter 3: Developing Brand Strategy
-====================================
 
 In this chapter, we will explore strategies for developing an effective brand strategy and offer tips for creating a brand positioning statement and identifying key messages.
 

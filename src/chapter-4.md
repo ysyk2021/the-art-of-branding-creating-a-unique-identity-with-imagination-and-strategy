@@ -1,5 +1,3 @@
-Chapter 4: Creating a Brand Identity
-====================================
 
 In this chapter, we will discuss techniques for creating a distinctive brand identity and the importance of visual elements such as logos, colors, and typography.
 

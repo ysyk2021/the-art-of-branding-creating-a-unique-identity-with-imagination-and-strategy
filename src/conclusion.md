@@ -1,4 +1,4 @@
-# Conclusion
+
 
 Recap of the Benefits of Effective Branding
 -------------------------------------------

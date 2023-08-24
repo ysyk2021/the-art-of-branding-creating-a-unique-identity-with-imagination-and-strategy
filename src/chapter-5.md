@@ -1,5 +1,3 @@
-Chapter 5: Building Brand Awareness
-===================================
 
 Strategies for Building Brand Awareness
 ---------------------------------------

@@ -1,5 +1,3 @@
-Chapter 6: Crafting Brand Voice and Messaging
-=============================================
 
 In this chapter, we will discuss techniques for developing a unique brand voice and tone, as well as strategies for crafting compelling brand messaging.
 

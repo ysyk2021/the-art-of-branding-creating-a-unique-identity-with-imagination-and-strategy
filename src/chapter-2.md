@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Basics of Branding
-===============================================
 
 In this chapter, we will provide an overview of the basic elements of branding and discuss the importance of identifying the target audience and defining brand values.
 
