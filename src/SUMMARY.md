@@ -29,3 +29,4 @@
   - [Strategies for managing negative feedback and maintaining reputation](chapter-9-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
